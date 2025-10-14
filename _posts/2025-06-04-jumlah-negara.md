@@ -2,7 +2,7 @@
 layout: post
 title: "Jumlah Negara yang Diakui di Dunia: Sebuah Tinjauan Komple"
 ---
-Pertanyaan mengenai jumlah negara yang diakui di dunia adalah salah satu isu geopolitik yang paling menarik sekaligus paling ambigu. Tidak ada satu angka tunggal yang disepakati secara universal, karena konsep "pengakuan" sangat bergantung pada perspektif politik dan keanggotaan organisasi internasional. Secara umum, referensi paling sering digunakan adalah berdasarkan jumlah negara anggota Perserikatan Bangsa-Bangsa (PBB).
+Pertanyaan mengenai jumlah negara yang diakui di dunia adalah salah satu isu geopolitik yang paling menarik sekaligus paling [ambigu](https://kumba.solusijodoh.com/). Tidak ada satu angka tunggal yang disepakati secara universal, karena konsep "pengakuan" sangat bergantung pada perspektif politik dan keanggotaan organisasi internasional. Secara umum, referensi paling sering digunakan adalah berdasarkan jumlah negara anggota Perserikatan Bangsa-Bangsa (PBB).
 
 Angka Berdasarkan Keanggotaan PBB
 Saat ini, Perserikatan Bangsa-Bangsa (PBB) menjadi barometer utama dalam menghitung negara berdaulat. PBB memiliki 193 negara anggota penuh. Angka ini dianggap sebagai standar emas dalam hukum internasional karena keanggotaan di PBB menyiratkan pengakuan luas dari mayoritas komunitas internasional. Selain itu, terdapat dua negara non-anggota dengan status pengamat permanen, yaitu Vatikan (Tahta Suci) dan Palestina. Jika kedua negara ini dimasukkan, totalnya menjadi 195 entitas yang memiliki status khusus di PBB.
