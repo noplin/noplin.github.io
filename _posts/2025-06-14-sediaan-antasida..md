@@ -1,3 +1,9 @@
+---
+layout: post
+title: "Memahami Berbagai Sediaan Antasida untuk Mengatasi Asam Lambung"
+---
+
+
 Gangguan pencernaan, terutama yang ditandai dengan rasa panas atau nyeri ulu hati (heartburn), seringkali disebabkan oleh kelebihan produksi asam lambung (asam klorida/HCl). Untuk meredakan kondisi ini secara cepat, banyak orang mengandalkan sediaan antasida. Antasida adalah zat basa lemah yang bekerja langsung di lambung untuk menetralkan asam lambung yang berlebih, sehingga menurunkan tingkat keasaman (pH) dan memberikan kelegaan instan.
 
 Mekanisme Kerja Dasar Antasida
